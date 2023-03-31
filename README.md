@@ -1,5 +1,5 @@
-# Xin chào, mình là Phùng Phi Hùng
-### My main website: [𝙃 𝙐 𝙉 𝙂 𝘾 𝙃 𝘼 𝙉 𝙉 𝙀 𝙇 𝙎 <3](https://phungphihung.ddns.net)
+# こんにちは、Phùng Phi Hùng です。
+### My main website: [𝙋 𝙃 𝙐 𝙉 𝙂 𝙋 𝙃 𝙄 𝙃 𝙐 𝙉 𝙂 <3](https://phungphihung.ddns.net)
 ### My sub website: [PhungPhiHung](https://kichhoat.ddns.net)
 ### Facebook: [Phùng Phi Hùng (Business Account)](https://www.facebook.com/HungChannels.TV)
 ### Facebook: [Phùng Phi Hùng(Personal Account)](https://www.facebook.com/User.PhiHung)
