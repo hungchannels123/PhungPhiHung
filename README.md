@@ -22,3 +22,6 @@
 ### Thanhtoan1s: [Phùng Phi Hùng](https://thanhtoan1s.com/hungchannels)
 ### MoMo: [Phùng Phi Hùng](https://me.momo.vn/hungchannels)
 ### Spotify: [Phùng Phi Hùng](https://open.spotify.com/user/21lo3acioscnsa7osvnskfzoy)
+### Soundcloud: [Hùng Channels](https://soundcloud.com/hung-channels)
+### Twitch: [hungchannels123](https://www.twitch.tv/hungchannels123)
+### VKontakte: [Hùng Channeks](https://vk.com/hungchannels)
