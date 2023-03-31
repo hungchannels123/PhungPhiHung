@@ -24,4 +24,4 @@
 ### Spotify: [Phùng Phi Hùng](https://open.spotify.com/user/21lo3acioscnsa7osvnskfzoy)
 ### Soundcloud: [Hùng Channels](https://soundcloud.com/hung-channels)
 ### Twitch: [hungchannels123](https://www.twitch.tv/hungchannels123)
-### VKontakte: [Hùng Channeks](https://vk.com/hungchannels)
+### VKontakte: [Hùng Channels](https://vk.com/hungchannels)
