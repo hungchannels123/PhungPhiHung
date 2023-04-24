@@ -1,8 +1,8 @@
 # こんにちは、Phùng Phi Hùng です。
-### My main website: [𝙋 𝙃 𝙐 𝙉 𝙂 𝙋 𝙃 𝙄 𝙃 𝙐 𝙉 𝙂 <3](https://phungphihung.ddns.net)
-### My sub website: [PhungPhiHung](https://kichhoat.ddns.net)
+### My main website: [PHUNGPHIHUNG - HOME](https://phungphihung.ddns.net)
+### My sub website: [こんにちは、Phùng Phi Hùng です。](https://kichhoat.ddns.net)
 ### Facebook: [Phùng Phi Hùng (Business Account)](https://www.facebook.com/HungChannels.TV)
-### Facebook: [Phùng Phi Hùng(Personal Account)](https://www.facebook.com/User.PhiHung)
+### Facebook: [Phùng Phi Hùng (Personal Account)](https://www.facebook.com/User.PhiHung)
 ### Messenger: [Phùng Phi Hùng](https://m.me/HungChannels.TV)
 ### Zalo: [Phùng Phi Hùng](https://zalo.me/0974612360)
 ### Instagram: [Phùng Phi Hùng](https://www.instagram.com/hungchannels.tv)
