@@ -26,3 +26,4 @@
 ### Soundcloud: [Hùng Channels](https://soundcloud.com/hung-channels)
 ### Twitch: [hungchannels123](https://www.twitch.tv/hungchannels123)
 ### VKontakte: [Hùng Channels](https://vk.com/hungchannels)
+### Xbox: [CinnamonEmu4001](https://live.xbox.com/Profile?CinnamonEmu4001)
