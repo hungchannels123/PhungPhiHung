@@ -75,3 +75,5 @@
 #### [Nhu-Anh-Da-Thay-Em.mp3](https://thanhdieu.com/files/Nhu-Anh-Da-Thay-Em.mp3)
 #### [Choemmotlanyeu.mp3](https://thanhdieu.com/files/Choemmotlanyeu.mp3)
 #### [Khong-Bang.mp3](https://thanhdieu.com/files/Khong-Bang.mp3)
+#### [l0y6x5.mp3](https://files.catbox.moe/l0y6x5.mp3)
+#### [sly2n7.mp3](https://files.catbox.moe/sly2n7.mp3)
