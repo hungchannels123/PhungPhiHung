@@ -10,6 +10,7 @@
 ### Messenger: [Phùng Phi Hùng](https://m.me/hungchannels.tv)
 ### Zalo: [Phùng Phi Hùng](https://zalo.me/0974612360)
 ### Instagram: [Phùng Phi Hùng](https://www.instagram.com/hungchannels.tv)
+### Threads: [Phùng Phi Hùng](https://www.threads.net/@hungchannels.tv)
 ### Pinterst: [Phùng Phi Hùng](https://www.pinterest.com/hungchannels)
 ### Youtube: [HungChannels TV](https://www.youtube.com/channel/UCQciDuDoCrPc6fIxEqOnDYQ)
 ### Discord: [hungchannels.tv#0](https://discord.com/users/364714303351160833)
