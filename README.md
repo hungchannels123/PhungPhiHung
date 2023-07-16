@@ -1,5 +1,5 @@
 # こんにちは、Phùng Phi Hùng です。
-### My main website: [PHUNGPHIHUNG - HOME](https://phungphihung.ddns.net)
+### My main website: [PHUNGPHIHUNG - HOME](https://hungchannels123.github.io)
 ### My sub website: [こんにちは、Phùng Phi Hùng です。](https://kichhoat.ddns.net)
 ### My archive website: [Download - Phùng Phi Hùng](https://archive.phungphihung.repl.co)
 ### Facebook: [Phùng Phi Hùng (Business Account)](https://www.facebook.com/hungchannels.tv)
