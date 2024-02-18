@@ -9,7 +9,6 @@
 ### Facebook: [Phùng Phi Hùng (Personal Account)](https://www.facebook.com/user.phihung)
 ### Facebook: [Phùng Phi Hùng (Page Account)](https://www.facebook.com/HungChannels.REAL)
 ### Facebook: [Phùng Phi Hùng (Profile Account)](https://www.facebook.com/PhungPhiHung.REAL)
-### Facebook: [Hùng Channels (Clone Account)](https://www.facebook.com/profile.php?id=100086552021428)
 ### Messenger: [Phùng Phi Hùng](https://m.me/hungchannels.tv)
 ### Zalo: [Phùng Phi Hùng](https://zalo.me/0974612360)
 ### Instagram: [Phùng Phi Hùng](https://www.instagram.com/hungchannels.tv)
