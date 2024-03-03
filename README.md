@@ -1,6 +1,8 @@
 # こんにちは、Phùng Phi Hùng です。
 ### My main website: [𝙋 𝙃 𝙐 𝙉 𝙂 𝙋 𝙃 𝙄 𝙃 𝙐 𝙉 𝙂 <3](https://phungphihung.ddns.net)
 ### My sub website: [こんにちは、Phùng Phi Hùng です。](https://kichhoat.ddns.net)
+### My cinnamonemu4001 website: [CinnamonEmu4001](https://phungphihung.x10.mx)
+### My glitch website: [! Phùng Phi Hùng !](https://phungphihung.glitch.me)
 ### My download website: [Download - Phùng Phi Hùng](https://download.phungphihung.repl.co)
 ### My archive website: [! Phùng Phi Hùng !](https://archive.phungphihung.repl.co)
 ### My htl website: [Home - Phùng Phi Hùng](https://htl.phungphihung.repl.co)
