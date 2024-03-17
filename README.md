@@ -29,7 +29,7 @@
 ### TikTok: [Phùng Phi Hùng](https://www.tiktok.com/@hungchannels)
 ### Telegram: [Phùng Phi Hùng](https://t.me/hungchannels123)
 ### PayPal: [Phùng Phi Hùng](https://paypal.me/hungchannels)
-### Steam: [Hùng Channels](https://steamcommunity.com/profiles/76561198906308621)
+### Steam: [HungChannels](https://steamcommunity.com/profiles/76561198906308621)
 ### NameMC: [HungChannels_TV](https://vi.namemc.com/profile/HungChannels_TV.2)
 ### Roblox: [HungChannels_TV](https://www.roblox.com/users/349162462)
 ### Roblox: [NotNico2360](https://www.roblox.com/users/774033117)
