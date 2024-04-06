@@ -37,7 +37,7 @@
 ### Thanhtoan1s: [Phùng Phi Hùng](https://thanhtoan1s.com/hungchannels)
 ### MoMo: [Phùng Phi Hùng](https://me.momo.vn/hungchannels)
 ### Spotify: [Phùng Phi Hùng](https://open.spotify.com/user/21lo3acioscnsa7osvnskfzoy)
-### Soundcloud: [Phùng Phi Hùng](https://soundcloud.com/hung-channels)
+### Soundcloud: [Phùng Phi Hùng](https://soundcloud.com/hungchannels)
 ### Twitch: [hungchannels123](https://www.twitch.tv/hungchannels123)
 ### VKontakte: [Hùng Channels](https://vk.com/hungchannels)
 ### Xbox: [CinnamonEmu4001](https://account.xbox.com/en-us/profile?gamertag=CinnamonEmu4001)
