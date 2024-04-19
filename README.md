@@ -26,6 +26,7 @@
 ### Replit: [Hùng Channels](https://replit.com/@HungChannels)
 ### Glitch: [Phùng Phi Hùng](https://glitch.com/@hungchannels123)
 ### Twitter: [Phùng Phi Hùng](https://twitter.com/HungChannels)
+### Pixiv: [Phùng Phi Hùng](https://www.pixiv.net/en/users/76098342)
 ### TikTok: [Phùng Phi Hùng](https://www.tiktok.com/@hungchannels)
 ### Telegram: [Phùng Phi Hùng](https://t.me/hungchannels123)
 ### PayPal: [Phùng Phi Hùng](https://paypal.me/hungchannels)
