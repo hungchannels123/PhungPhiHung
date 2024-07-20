@@ -20,7 +20,7 @@
 ### Pinterst: [Phùng Phi Hùng](https://www.pinterest.com/hungchannels)
 ### Youtube: [HungChannels TV](https://www.youtube.com/channel/UCQciDuDoCrPc6fIxEqOnDYQ)
 ### Discord: [Phùng Phi Hùng](https://discord.com/users/364714303351160833)
-### Discord: [CinnamonEmu4001](https://discord.com/users/739704349453713409)
+### Discord: [Phùng Phi Hùng | Extrxck](https://discord.com/users/739704349453713409)
 ### Discords: [hungchannels.tv#0](https://dsc.bio/hungchannels)
 ### Reddit: [Phùng Phi Hùng](https://www.reddit.com/user/HungChannels)
 ### Github: [Phùng Phi Hùng](https://github.com/hungchannels123)
