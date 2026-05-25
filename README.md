@@ -41,3 +41,7 @@
 ### Twitch: [hungchannels123](https://www.twitch.tv/hungchannels123)
 ### VKontakte: [Hùng Channels](https://vk.com/hungchannels)
 ### Xbox: [CinnamonEmu4001](https://account.xbox.com/en-us/profile?gamertag=CinnamonEmu4001)
+### WeChat: wxid_rhnbi3wfc61912
+### WeChat: wxid_1kmlx4elut6212
+### rednote: [Phùng Phi Hùng(@hungchannels)](https://www.rednote.com/user/profile/69c9f20e000000002603a631)
+### Douyin: Phùng Phi Hùng(@hungchannels)
