@@ -44,4 +44,6 @@
 ### WeChat: wxid_rhnbi3wfc61912
 ### WeChat: wxid_1kmlx4elut6212
 ### rednote: [Phùng Phi Hùng(@hungchannels)](https://www.rednote.com/user/profile/69c9f20e000000002603a631)
+### Weibo: [HungChannels](https://weibo.com/u/9118849665)
 ### Douyin: Phùng Phi Hùng(@hungchannels)
+### Bilibili: [HungChannels](https://space.bilibili.com/3707011585804453)
